@@ -1,2 +1,4 @@
 # Hello-World
 Random Thoughts
+Hey Guys, its my first Branch and here i would like to talk of that day
+I use to rarely travel by train but that i did. Hustling through the crowdy platform i made it to the zebra crossing some how. Dreaded in Sweats, i just cleaned my forehead and wiped my hand at the back of my tshirt(Coz thats what tshirts are for). And something was special about that day. A omnie taxi came honking at the signal and its caught my attention. But the passenger on the back seat held my heart. She just smiled on may some joke. But that smile! i cant forget till last breathe. That smile was just fantastic. Never had i ever seen something ever till then and after that. i riled up everyday by train at the same time just for that glance everyday. But she never showed up ever after that. But she everydays shows up in my memory of few of the beautiful moments of my life!!
